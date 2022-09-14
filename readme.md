@@ -11,7 +11,7 @@ ___
 - Full-time Dad & Homeschool Teacher
 - Aerospace Engineer
 - Air Force Officer
-- Soccer Coach
+- Youth Soccer Coach
 
 ###### A man of many interests:
 
@@ -32,7 +32,7 @@ ___
 
 ___
 
-> **"Life is short; I wanna live it well."**  --- *Switchfoot*
+> *"Life is short; I wanna live it well."  --- Switchfoot*
 
 ___
 
