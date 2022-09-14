@@ -18,8 +18,7 @@ ___
 - :milky_way: Space nerd
 - 3D modeling and printing
 - Graphic Arts
-- Board Games
-- Soccer 
+- Board Games 
 - :musical_note: Music Lover and Parrothead
 
 ###### Skills to pay the bills:
