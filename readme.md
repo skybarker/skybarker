@@ -32,7 +32,7 @@ ___
 
 ___
 
-> "Life is short; I wanna live it well."  --- Switchfoot
+> **"Life is short; I wanna live it well."**  --- *Switchfoot*
 
 ___
 
